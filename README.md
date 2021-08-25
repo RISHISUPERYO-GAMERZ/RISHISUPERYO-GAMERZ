@@ -10,7 +10,7 @@ Born of this king ⚡ = [15th June  Year :- 2009⚡]
 Country = 🇮🇳 
 ```
 ####
-[![telegram badge](https://img.shields.io/badge/@Rishisuperyo-30302f?style=for-the-badge&logo=telegram)](https://t.me/Rishisuperyo)
+[![telegram badge](https://img.shields.io/badge/@Rishisuperyo-30302f?style=for-the-badge&logo=telegram)](https://t.me/Rishisuperyoop)
 
 [![mailid badge](https://img.shields.io/badge/Rishisuperyo-Opf?style=for-the-badge&logo=gmail)](rituparnasen019@gmail.com)
 <p align="left"> <img 
